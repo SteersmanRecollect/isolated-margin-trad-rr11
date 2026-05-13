@@ -1,4 +1,4 @@
-# 
+# isolated-margin trading bot AI-powered Strategy | take-profit & liquidity-provision offers the most advanced isolated-margin trading bot, with take-profit and liquidity-provision.
 
 
 
